@@ -1,0 +1,2 @@
+# makadanki
+lay kul lagay
